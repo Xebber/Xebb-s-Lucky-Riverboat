@@ -4,5 +4,4 @@ This isn’t some corporate mega-casino. It’s a 100% RTP, 0% House Edge pit bu
 
 I stream the madness live on Kick.com/x3bb3r — slots, parlays, and whatever hits. The chat’s always lit, the bets are reckless, and the vibe never clocks out.
 
-No house edge. No pressure. No gimmicks.  
-Just a smoky corner of the internet where degenerates feel at home.
+No house edge. No pressure. No gimmicks. Just a smoky corner of the internet where degenerates feel at home.
